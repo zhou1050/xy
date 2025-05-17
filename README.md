@@ -1,16 +1,69 @@
-<div class="Box-sc-g0xbh4-0 QkQOb js-snippet-clipboard-copy-unpositioned undefined" data-hpc="true"><article class="markdown-body entry-content container-lg" itemprop="text"><div class="markdown-heading" dir="auto"><h1 tabindex="-1" class="heading-element" dir="auto">星云机场官网地址</h1><a id="user-content-星云机场官网地址" class="anchor" aria-label="Permalink: 星云机场官网地址" href="#星云机场官网地址"><svg class="octicon octicon-link" viewBox="0 0 16 16" version="1.1" width="16" height="16" aria-hidden="true"><path d="m7.775 3.275 1.25-1.25a3.5 3.5 0 1 1 4.95 4.95l-2.5 2.5a3.5 3.5 0 0 1-4.95 0 .751.751 0 0 1 .018-1.042.751.751 0 0 1 1.042-.018 1.998 1.998 0 0 0 2.83 0l2.5-2.5a2.002 2.002 0 0 0-2.83-2.83l-1.25 1.25a.751.751 0 0 1-1.042-.018.751.751 0 0 1-.018-1.042Zm-4.69 9.64a1.998 1.998 0 0 0 2.83 0l1.25-1.25a.751.751 0 0 1 1.042.018.751.751 0 0 1 .018 1.042l-1.25 1.25a3.5 3.5 0 1 1-4.95-4.95l2.5-2.5a3.5 3.5 0 0 1 4.95 0 .751.751 0 0 1-.018 1.042.751.751 0 0 1-1.042.018 1.998 1.998 0 0 0-2.83 0l-2.5 2.5a1.998 1.998 0 0 0 0 2.83Z"></path></svg></a></div>
-<p dir="auto">最新地址：<a href="https://xx1050.top" rel="nofollow">star.cloud</a></p>
-<div class="markdown-heading" dir="auto"><h2 tabindex="-1" class="heading-element" dir="auto">星云介绍</h2><a id="user-content-星云介绍" class="anchor" aria-label="Permalink: 星云介绍" href="#星云介绍"><svg class="octicon octicon-link" viewBox="0 0 16 16" version="1.1" width="16" height="16" aria-hidden="true"><path d="m7.775 3.275 1.25-1.25a3.5 3.5 0 1 1 4.95 4.95l-2.5 2.5a3.5 3.5 0 0 1-4.95 0 .751.751 0 0 1 .018-1.042.751.751 0 0 1 1.042-.018 1.998 1.998 0 0 0 2.83 0l2.5-2.5a2.002 2.002 0 0 0-2.83-2.83l-1.25 1.25a.751.751 0 0 1-1.042-.018.751.751 0 0 1-.018-1.042Zm-4.69 9.64a1.998 1.998 0 0 0 2.83 0l1.25-1.25a.751.751 0 0 1 1.042.018.751.751 0 0 1 .018 1.042l-1.25 1.25a3.5 3.5 0 1 1-4.95-4.95l2.5-2.5a3.5 3.5 0 0 1 4.95 0 .751.751 0 0 1-.018 1.042.751.751 0 0 1-1.042.018 1.998 1.998 0 0 0-2.83 0l-2.5 2.5a1.998 1.998 0 0 0 0 2.83Z"></path></svg></a></div>
-<p dir="auto">星云机场，中转机场，带宽非常足，性价比也不错。</p>
-<p dir="auto">所有套餐均包含香港，新加坡，日本，台湾，美国，韩国、土耳其、等国家和地区。</p>
-<p dir="auto">购买任意套餐就送emby服务，数万部4K国内外电影电视剧免费。</p>
-<div class="markdown-heading" dir="auto"><h2 tabindex="-1" class="heading-element" dir="auto">星云优惠码</h2><a id="user-content-星云优惠码" class="anchor" aria-label="Permalink: 星云优惠码" href="#星云优惠码"><svg class="octicon octicon-link" viewBox="0 0 16 16" version="1.1" width="16" height="16" aria-hidden="true"><path d="m7.775 3.275 1.25-1.25a3.5 3.5 0 1 1 4.95 4.95l-2.5 2.5a3.5 3.5 0 0 1-4.95 0 .751.751 0 0 1 .018-1.042.751.751 0 0 1 1.042-.018 1.998 1.998 0 0 0 2.83 0l2.5-2.5a2.002 2.002 0 0 0-2.83-2.83l-1.25 1.25a.751.751 0 0 1-1.042-.018.751.751 0 0 1-.018-1.042Zm-4.69 9.64a1.998 1.998 0 0 0 2.83 0l1.25-1.25a.751.751 0 0 1 1.042.018.751.751 0 0 1 .018 1.042l-1.25 1.25a3.5 3.5 0 1 1-4.95-4.95l2.5-2.5a3.5 3.5 0 0 1 4.95 0 .751.751 0 0 1-.018 1.042.751.751 0 0 1-1.042.018 1.998 1.998 0 0 0-2.83 0l-2.5 2.5a1.998 1.998 0 0 0 0 2.83Z"></path></svg></a></div>
-<p dir="auto">🎉星云 618优惠活动</p>
-<p dir="auto">月付9折优惠码： month90</p>
-<p dir="auto">季付85折优惠码： season85</p>
-<p dir="auto">半年付82折优惠码： halfyear82</p>
-<p dir="auto">年付8折优惠码： year80</p>
-<p dir="auto">有效期：2024/6/14—2024/6/20</p>
-<div class="markdown-heading" dir="auto"><h2 tabindex="-1" class="heading-element" dir="auto">星云价格</h2><a id="user-content-星云价格" class="anchor" aria-label="Permalink: 星云价格" href="#星云价格"><svg class="octicon octicon-link" viewBox="0 0 16 16" version="1.1" width="16" height="16" aria-hidden="true"><path d="m7.775 3.275 1.25-1.25a3.5 3.5 0 1 1 4.95 4.95l-2.5 2.5a3.5 3.5 0 0 1-4.95 0 .751.751 0 0 1 .018-1.042.751.751 0 0 1 1.042-.018 1.998 1.998 0 0 0 2.83 0l2.5-2.5a2.002 2.002 0 0 0-2.83-2.83l-1.25 1.25a.751.751 0 0 1-1.042-.018.751.751 0 0 1-.018-1.042Zm-4.69 9.64a1.998 1.998 0 0 0 2.83 0l1.25-1.25a.751.751 0 0 1 1.042.018.751.751 0 0 1 .018 1.042l-1.25 1.25a3.5 3.5 0 1 1-4.95-4.95l2.5-2.5a3.5 3.5 0 0 1 4.95 0 .751.751 0 0 1-.018 1.042.751.751 0 0 1-1.042.018 1.998 1.998 0 0 0-2.83 0l-2.5 2.5a1.998 1.998 0 0 0 0 2.83Z"></path></svg></a></div>
-<markdown-accessiblity-table data-catalyst=""><table>
-<thead>
+# 🌌 星云机场官网地址
+
+📌 **最新地址**：[https://xx1050.top](https://xx1050.top)  
+🎟 **优惠码**：`XQe3JHAL`（下单立减，限时有效）
+
+> ⚠️ 请务必收藏官网地址，防止失联！
+
+---
+
+## ✨ 星云机场简介
+
+**星云机场**是高速稳定的中转机场，专为追求高质量网络体验的用户打造：
+
+- 🌍 全球节点覆盖：香港、日本、美国、台湾、新加坡、韩国、土耳其等
+- 🚀 全中转线路，白天晚上高峰期也不卡顿
+- 📶 高带宽、大流量，解锁 TikTok / YouTube / Netflix / ChatGPT
+- 💻 **支持全平台设备**：安卓 / 苹果 / Windows / macOS / 路由器
+- 🔐 多设备同时使用，无限速限制
+
+---
+
+## 💸 套餐价格
+
+### 📅 月付套餐（按月计费）
+
+| 套餐 | 月费 | 流量参考 | 适合人群 |
+|------|------|----------|----------|
+| 基础 | ¥10  | 100GB   | 轻度使用 |
+| 标准 | ¥20  | 200GB   | 日常使用 |
+| 高级 | ¥30  | 300GB   | 高频使用 |
+| 尊享 | ¥40  | 500GB   | 多设备用户 |
+
+
+> 🛒 使用优惠码 **`XQe3JHAL`**，任意套餐下单立减！
+
+---
+
+## 🎯 使用场景
+
+- ✅ 解锁 Netflix / YouTube / TikTok 等海外平台
+- ✅ 畅用 ChatGPT、Claude、Midjourney 等 AI 工具
+- ✅ 远程办公、访问 Google / GitHub 稳定高速
+- ✅ 加速跨境游戏，低延迟无丢包
+
+---
+
+## 🧭 快速开始指南
+
+1. 打开官网：[https://xx1050.top](https://xx1050.top)
+2. 注册账号，选择套餐
+3. 付款时输入优惠码：`XQe3JHAL`
+4. 获取订阅链接，导入到你的客户端
+5. 开始享受高速网络体验！
+
+---
+
+## 🔧 客户端支持
+
+| 设备 | 推荐客户端 |
+|------|------------|
+| 📱 安卓 | v2rayNG、Hiddify、Clash Verge 等 |
+| 🍎 苹果 | Shadowrocket、Stash、Loon |
+| 💻 Windows / macOS | Clash、V2rayN、Clash Verge |
+| 🌐 路由器 | 支持 OpenWrt / Merlin / Padavan 等固件接入 |
+
+---
+
+> ⭐ **星云机场 — 稳定中转，高速全球，全平台支持，一站式上网解决方案！**
+
